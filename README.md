@@ -1,1 +1,1 @@
-Hey, currently studying Cyber Security at HSMA
+Hey, currently studying Cyber Security at THM
